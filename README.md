@@ -1,1 +1,2 @@
-# InoTech
+# Inovative Technologies Ghana
+InnoTech GH
